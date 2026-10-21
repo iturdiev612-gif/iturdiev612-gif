@@ -84,6 +84,7 @@
 ## 📫 Контакты
 
 - 🐙 GitHub: [iturdiev612-gif](https://github.com/iturdiev612-gif)
+- - 💬 WhatsApp: [+996 999 425 453](https://wa.me/996999425453)
 
 <div align="center">
 
